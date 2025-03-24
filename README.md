@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RLC-maker
-- 🎮 I’m interested in game developing,fintech and blockchain
+- 🎮 I’m interested in game development,fintech and blockchain
 - 📫 How to reach me:rlyehpx@gamil.com
 
 <!---
